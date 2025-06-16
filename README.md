@@ -1,0 +1,1 @@
+China's legal system is fundamentally different from the international concept of "Rule of Law." This distinction is critical to understanding its legal warfare strategy, where law serves as a tool of the state, not a constraint upon it.
